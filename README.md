@@ -1,6 +1,6 @@
 
 <p align=center>
-hi i go by spade he/him infj 4(w3)78
+hi i go by spade. any pronouns OK. infj 4(w3)78 sx/sp
 <p align=center>
 i love hndr danganronpa roysca awadori
 <br/>i love kakegurui pandora hearts vanitas no carte owari no seraph
