@@ -9,7 +9,7 @@ i love hndr danganronpa roysca awadori
   ‎ 
 <p align=center>
 <b>before</b> you interact: i say slurs i can reclaim. i suck at socializing.
-<br/>im autistic. osdd. ocd. suspected szpd. ummm. and bpd. #ggwp
+<br/>im autistic. osdd. ocd. suspected stpd and avpd. #ggwp
 <br/>my top kin is hatsune "uika" misumi. right after that is eito aotsuki. right after that, is nagito komaeda.
 
 <p align=center>
