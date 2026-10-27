@@ -1,12 +1,5 @@
+
 <p align=center>
-<img width="662" height="852" alt="image" src="https://files.catbox.moe/0r0544.png" />
-
-
-
-
-</p>
-‎ 
-‎<p align=center>
 hi i go by nothing actually. call me whatever OK! 16 he/him intj 4w5
 <p align=center>
 i love twst kuroshitsuji vocaloid ROYAL SCANDAL ...  
