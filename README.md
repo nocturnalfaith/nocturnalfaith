@@ -8,12 +8,12 @@ i love hndr danganronpa roysca awadori
 ‎
   ‎ 
 <p align=center>
-<b>before</b> you interact: i say slurs i can reclaim. i suck at socializing,
-<br/>im autistic. osdd. ocd. suspected szpd.
+<b>before</b> you interact: i say slurs i can reclaim. i suck at socializing.
+<br/>im autistic. osdd. ocd. suspected szpd. ummm. and bpd. #ggwp
 <br/>my top kin is hatsune "uika" misumi. right after that is eito aotsuki. right after that, is nagito komaeda.
 
 <p align=center>
-<img src=https://files.catbox.moe/l0b2gq.gif /> shoutout to my best friends everr: <img src=https://files.catbox.moe/l0b2gq.gif />
+shoutout to my best friends everr:
 <br/>tartarus my mama, remy my brother :)))
 ‎ 
 
@@ -23,4 +23,4 @@ i love hndr danganronpa roysca awadori
 <br/>if youre on laptop, ummm :) i hope u like it :)
 
 <p align=center>
-<img src=https://files.catbox.moe/qhxirs.gif /> <img src=https://files.catbox.moe/1ele0t.gif />
+<img src=https://file.garden/ZeXSNBo9KEiz9dYe/2026-09-26%2021_33_14-The%20Hundred%20Line%20-Last%20Defense%20Academy-.png />
