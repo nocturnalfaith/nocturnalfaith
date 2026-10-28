@@ -16,10 +16,11 @@ i love hndr danganronpa roysca awadori
 shoutout to my best friends everr:
 <br/>tartarus my mama, remy my brother :)))
 ‎ 
-
-  
-<br/>strawpage is https://nocturneremembrance.straw.page ... it is HIGHLY recommended to NOT
-<br/>open this if your phone is on low power mode, or if youre on phone at all.
+<br/>
+<p align=left>
+<img src=https://file.garden/ZeXSNBo9KEiz9dYe/eito.png />
+<br/>strawpage is https://nocturneremembrance.straw.page ... it is HIGHLY
+<br/>recommended to NOT open this if youre on mobile.
 <br/>if youre on laptop, ummm :) i hope u like it :)
 
 <p align=center>
